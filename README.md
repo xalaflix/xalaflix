@@ -1,4 +1,4 @@
-About XalaFlix APK
+<b>About XalaFlix APK</b>
 XalaFlix APK gives you all the movies in one app, so you don’t need to buy or download tickets. You can watch movies in the privacy of your home or office, on your sofa or bed, on your smartphone or tablet, or even on your TV. We also offer a subscription service that gives you unlimited access to our entire collection, which you can enjoy for months.
 
 With over a thousand films and more in development, we bring you the best foreign, Hollywood, and Asian films. We also have a special collection of short films and web series to entertain and educate you.
